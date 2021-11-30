@@ -1,2 +1,2 @@
-# Web-Project-6---Alireza_Mohammadi
+# Project-6---Alireza_Mohammadi
 Web Project 6 - Alireza_Mohammadi
